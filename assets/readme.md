@@ -1,0 +1,1 @@
+Klasore Çıkart Yapın
